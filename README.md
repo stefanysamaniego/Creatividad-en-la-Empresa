@@ -1,6 +1,6 @@
 # Creatividad-en-la-Empresa
 
-La creatividad es un factor clave en muchas situaciones que pueden encontrarse en una empresa. Se trata un elemento fundamental que debe estar presente en todo equipo de trabajo.
+La creatividad es un factor clave en muchas situaciones que pueden encontrarse en una empresa. Se trata un elemento fundamental que debe estar presente en todo equipo de trabajo para poder desarrollar una buena creatividad en la empresa que esta realix¿zando su trabajo.
 
 # Consejos para hacer crecer tu negocio
 
